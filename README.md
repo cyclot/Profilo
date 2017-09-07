@@ -1,2 +1,2 @@
 # Profilo
-Amalgam of your Profile &amp; Portfolio
+Amalgam of your Profile &amp; Portfolio !
